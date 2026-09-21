@@ -1,6 +1,6 @@
 # Rickroll Hall of Fame entry
 
-**Video:** Rick Astley - Never Gonna Give You Up (Official Video) (4K Remaster)
+**Video (title exactly as the transcript reports it):** Rick Astley - Never Gonna Give You Up (Official Video) (4K Remaster) - YouTube
 **Source:** https://www.youtube.com/watch?v=dQw4w9WgXcQ
 
 ## First two chorus lines (verbatim from the transcript)
